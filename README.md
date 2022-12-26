@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Alroha
+- 👀 I’m a skid
+- 🌱 I’m currently learning Java, Javascript more Python
+- 💞️ I’m looking to collaborate on your mom
+- 📫 How to reach me call me! My phone number is: 911
